@@ -3,6 +3,7 @@ languageCode = 'en-us'
 title = 'Zach Nickel'
 theme = ["github.com/theNewDynamic/gohugo-theme-ananke"]
 resourceDir = "./resources"
+publishDir = "./docs"
 
 DefaultContentLanguage = "en"
 SectionPagesMenu = "main"
