@@ -19,7 +19,6 @@ Growing in the Kingdom is hard. It takes work and intention. No one accidentally
 
 I created the Spiritual Fitness plan because I was tired of knowing what I should be doing and never doing any of it. Much like someone who needed a radical change for weight loss, I was in need of a radical change in the congruence between what I believed and what I did.
 
-<insert scripture about why each practice is in the plan>
 
 **The Breakdown**
   
@@ -45,4 +44,4 @@ I won't go into detail on each individual practice in this article but intend to
   
 **The Finish Line**
   
-Doing this routine will not get you to heaven. It won't force your problems to go away. It won't make God bless you. It's a tool that will work on your heart, grow your relationship with God, and help you discover what you're capable of. Always remember that you aren't perfect and God knows this. If you fail, God won't be disappointed. He will be proud of your effort and heart to pursue Him.
+Doing this routine will not get you to heaven. It won't force your problems to go away. It won't make God bless you. It's a tool that will allow God to work on your heart, grow your relationship with Him, and help you discover what you're capable of. Always remember that you aren't perfect and God knows this. If you fail, God won't be disappointed. He will be proud of your effort and heart to pursue Him.
