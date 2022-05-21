@@ -1,7 +1,7 @@
 ---
 date: 2022-05-15
 description: "The Spiritual Fitness Plan"
-featured_image: "/images/posts/post1_mountains.jpg"
+featured_image: "/images/posts/posts_mountain1.jpg"
 title: "Fitness isn't just for your body"
 ---
 
@@ -44,4 +44,4 @@ I won't go into detail on each individual practice in this article but intend to
   
 **The Finish Line**
   
-Doing this routine will not get you to heaven. It won't force your problems to go away. It won't make God bless you. It's a tool that will allow God to work on your heart, grow your relationship with Him, and help you discover what you're capable of. Always remember that you aren't perfect and God knows this. If you fail, God won't be disappointed. He will be proud of your effort and heart to pursue Him.
+Doing this routine will not get you to heaven. It won't force your problems to go away. It won't make God bless you. It's a tool that will allow God to work on your heart, grow your relationship with Him, and help you discover what you're capable of. Remember that you aren't perfect and God knows this. If you fail, God won't be disappointed. He will be proud of your effort and heart to pursue Him.
