@@ -32,7 +32,7 @@ To make this successful, don't:
 
 None of these shortcuts will help your spiritual muscles improve. The plan is designed to include variety so if there are some things you like more than others, you won't get "stuck" doing things you don't like (unless you don't like any of it). If you completed the plan and it was not easy or you couldn't finish but you want to run it again, I recommend taking a week or two off before starting another round.
   
-I won't go into detail on each individual practice in this article but intend to do a deeper dive on each one and why it's in the plan. They are all direct instructions from the Bible. The practices are:
+I won't go into detail on each individual practice in this article but intend to do a deeper dive on each one and why it's in the plan. They are fairly obvious in terms of their Biblical origin. The practices are:
   * Silence and solitude
   * Sing and music
   * Study Bible
@@ -41,7 +41,14 @@ I won't go into detail on each individual practice in this article but intend to
   * Intercessory prayer
   * Repentance and Confession
   * Fasting
-  
+
 **The Finish Line**
   
-Doing this routine will not get you to heaven. It won't force your problems to go away. It won't make God bless you. It's a tool that will allow God to work on your heart, grow your relationship with Him, and help you discover what you're capable of. Remember that you aren't perfect and God knows this. If you fail, God won't be disappointed. He will be proud of your effort and heart to pursue Him.
+Doing this routine will not get you to heaven. It won't force your problems to go away. It won't make God bless you. It's a tool that will allow God to work on your heart, grow your relationship with Him, and help you discover what you are capable of. Remember that you aren't perfect and God knows this. If you fail, God won't be disappointed. He will be proud of your effort and heart to pursue Him.
+
+
+**Particulars On This Printout**
+
+Each phase of the program has a dedicated page. Go through each phase alphabetically. This results in a 3 month program. There is also a legend to help understand each of the disciplines and how to practice them. Each schedule indicates a duration for the practice. This is a minimum suggestion. Each practice can go for longer but don't let it go for less time. Set a timer and push yourself to go the full duration. If you follow the minimum duration, no day will take longer than 30 minutes. Each phase is designed around a 5 day work week and a 2 day weekend where unique and shorter activities occur on the weekend. With that understanding, the schedule can be modified to fit weekly calendars that fall outside of this structure.
+
+{download link}
