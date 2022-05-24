@@ -1,6 +1,36 @@
+---
+date: 2022-05-15
+description: "What it is and why it's important"
+featured_image: "/images/posts/posts_mountain2.jpg"
+title: "Biblical Fasting"
+---
+
+### Intro
+
+If you're reading this, chances are you've all heard about it, maybe even tried it. Do you remember the last time you did it? Was it last month, or last year? A few years ago?
+
+The technical definition of _dietary_ fasting is voluntary reduction or elimination of your intake of food for a specific time and purpose. _Biblical_ fasting voluntary abstainment from something for a specific time and purpose. This discussion is about Biblical fasting. The Bible talks about fasting with regard to food, so that's what we'll focus on here. One can fast something other than food but abstaining from food is a very easy way to accomplish the purpose of a fast and is universal to all humanity.
+
+**The Why**
+
+It has nothing to do with getting God to move. In addition, it's just a _dietary_ fast if it's not coupled with prayer.
+
+
+
+
+
+
+### What it isn't
+
+### Why it's important / What are the benefits
+
+### Why it's in the spiritual fitness plan
+
+### Closing thoughts
+
 ## Dan Mohler Notes
 What fasting isn't:
-It has nothing to do with getting God to move. It is all about you/me seeing clear. Because, we have a flesh voice that tries to rise up.
+It is all about you/me seeing clear. Because, we have a flesh voice that tries to rise up.
 
 You aren't fasting to afflict your soul. You fast to bring in line the indulgence of the flesh and to bring in order your body, your hunger, and the cry of your carnal nature...to get your spirit man above your carnal man.
 
@@ -97,7 +127,6 @@ Spiritual Benefits of Fasting
 12 “Even now,” declares the Lord,
 “return to me with all your heart,
 with fasting and weeping and mourning.”
- 
 
 > Personal revival
 
