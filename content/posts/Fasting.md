@@ -13,154 +13,42 @@ The technical definition of _dietary_ fasting is voluntary reduction or eliminat
 
 **The Why**
 
-It has nothing to do with getting God to move. In addition, it's just a _dietary_ fast if it's not coupled with prayer.
+For starters, it's not just fasting, it's prayer and fasting. I've heard it said that fasting without prayer is just a bad diet. The Spirit lives in an atmosphere where prayer is and prayer changes our hearts, joining it to the Father. You're fasting so that you get a clearer view, so you get a breakthrough in your own understanding. It's not to manipulate God to action (more on that later). Fasting aligns us to His will and purposes. It's about faith rising up and seeing what you are supposed to see.
 
+Fasting also bring discipline in your life. It is training that helps you suppress the desires and motives of your carnal man and increases the strength of your spirit man. This is profoundly beneficial. Fasting gets you to live by the Spirit; and life in the Spirit is what we should ache for. This is part of what Galatians 5:24-25 is talking about: "Those who belong to Christ Jesus have crucified the flesh with its passions and desires. Since we live by the Spirit, let us keep in step with the Spirit." Jesus in Matthew 16 said that "If anyone would come after me, let him deny himself and take up his cross and follow me".
 
+**An important distinction**
 
+God is not healing your loved one because you fasted for 2 weeks. He heals your loved one because He sent Jesus Christ to die on the cross and raised Him from the dead. Fasting when a loved one is sick is to get a clearer perspective of the sickness versus the finished work of Christ. The Spirit empowers you to see the situation through Christ and minister the proper authority necessary. You're fasting so that you get a clearer view.
 
-
-
-### What it isn't
 
 ### Why it's important / What are the benefits
 
-### Why it's in the spiritual fitness plan
+This isn't an exhaustive list but indicates several reasons why we should fast. Credit should be given to Todd Blansit as this list was taken from one of his talks.
+
+1. Initiate personal revival and spiritual growth. - **Joel 2.12** "Even now, declares the Lord, return to me with all your heart, with fasting and weeping and mourning."
+
+2.Receive clear revelation and direction from God. - **Acts 13:1-3** "Now in the church at Antioch there were prophets and teachers: Barnabas, Simeon called Niger, Lucius of Cyrene, Manaen (who had been brought up with Herod the tetrarch) and Saul. While they were worshiping the Lord and fasting, the Holy Spirit said, "Set apart for me Barnabas and Saul for the work to which I have called them." So after they had fasted and prayed, they placed their hands on them and sent them off.
+
+3. Free people from spiritual bondages. - **Mark 9.28-29** After Jesus had gone indoors, his disciples asked him privately, "Why couldn’t we drive it out?" He replied, "This kind can come out only by prayer."
+
+4. Push back or loosen the demonic powers over a situation. - **Daniel 10**
+
+5. Navigate the journey ahead with confidence. - **Ezra 8.21-23** There, by the Ahava Canal, I proclaimed a fast, so that we might humble ourselves before our God and ask him for a safe journey for us and our children, with all our possessions. I was ashamed to ask the king for soldiers and horsemen to protect us from enemies on the road, because we had told the king, "The gracious hand of our God is on everyone who looks to him, but his great anger is against all who forsake him." So we fasted and petitioned our God about this, and he answered our prayer.
+
+6. Deepen our intimacy with Jesus. - **Matthew 9.14-15** Then John's disciples came and asked him, "How is it that we and the Pharisees fast often, but your disciples do not fast?" Jesus answered, "How can the guests of the bridegroom mourn while he is with them? The time will come when the bridegroom will be taken from them; then they will fast."
+
+### Why it's in the spiritual fitness plan  {link to plan post}
+
+Jesus is talking in Matthew 6:16 where it says, "*When* you fast, do not look somber as the hypocrites do, for they disfigure their faces to show others they are fasting. Truly I tell you, they have received their reward in full." He goes on to describe more but I wanted to highlight that it doesn't say "if" you fast, it says "when". Fasting is an expectation from Jesus.
+
+It's my belief that Christians should fast often. That is to say, they should fast more than once a year when the pastor calls the whole church to fast. If fasting trains your spirtual muscles to follow God and aligns you with His heart and purposes, the only question to answer is "how bad do you want those things?". My answer to that question is, "as often as possible". If you believe that life on earth is meaningless without God and you don't want to live your life without Him, that is probably your answer too.
+
 
 ### Closing thoughts
 
-## Dan Mohler Notes
-What fasting isn't:
-It is all about you/me seeing clear. Because, we have a flesh voice that tries to rise up.
+The spiritual fitness plan prescribes a sunup to sundown fast once every four weeks. I like the sunup to sundown fast because it's difficult but you can still eat. It seems like a smart way to incorporate a fast into daily life. On a personal note, I've found that at the end of a sunup to sundown fast, I'm desperate for food. It's difficult to think about other things. It's in those moments that I direct my desperation toward God. I engage with the Lord and show Him that my desperation for Him is like the way I'm feeling toward food. I've got a deep hunger for more of Him and I feel the hunger in a very tangible way. It's an incredibly bonding moment between He and I. My prayer is that the same thing happens between you and Him.
 
-You aren't fasting to afflict your soul. You fast to bring in line the indulgence of the flesh and to bring in order your body, your hunger, and the cry of your carnal nature...to get your spirit man above your carnal man.
+Everyone's situation is different and the sunup to sundown prescription won't work for a lot of people. I encourage you to be honest and eager in your fast selection. Sunup to sundown may be too easy for some people, it may be unwise for others. **Push yourself but don't break yourself.**
 
-God is not healing your loved one because you fasted for 2 weeks. He heals your loved one because He sent Jesus Christ to die on the cross and raised Him from the dead. Fasting when a loved one is sick is to get a clearer perspective of the sickness versus the finished work of Christ and rise in the things of the spirit so you can see the situation through Christ and minister the proper authority necessary. It's for you. You're fasting so that you get a clearer view, so you get a breakthrough in your own understanding. 
-
-
-
-What fasting is:
-Fasting is to suppress the things of the flesh and grow in the things of the Spirit. To get your mind in a place where you are seeing, you're reading, it's coming alive, "God I want to know you, I'm bringing discipline in my life".
-
-The whole purpose of true Bible fasting is to crush and to bring in order the indulgence of the flesh.
-
-Jesus changed why we fast. They fasted in the old covenant to be approved and to hear from on high, to find favor, to get merit. IN the new covenant, we're fasting to know Him. To get the carnal nature in order.
-
-
-
-How to do it:
-It's not just fasting, it's prayer and fasting.
-
-Your prayer should constantly be keeping your heart and mind in tune to why you are fasting. "God, could you help me and just remove this? It's obvious I have a serious cry of the flesh. It's obvious that this thing is trying to outweigh my cry for you. And nothing will outshout my heart to know you. - And God, my heart's before you and I'm not just trying to abstain from food, because the finished work of Jesus is enough but I must know you more and with this kind of indulgence, with this kind of carnal cry, how will I ever live fueled by the Spirit? God, I want to live by the Spirit."
-
-Thank God for the honor of pursuing Him spiritually and for bringing submission to the cry of my flesh and the carnal nature of man. Submit yourself to Him.
-
-Drink more water. Get a grip on the hunger pangs through a time of prayer and refocusing on what you are doing.
-
-You can't fail your fast. If you stop earlier than you wanted or break down and eat something, you didn't fail. It's not about works at the cost of condemnation. You CANNOT be condemned for breaking a fast. He's excited that you are pursuing Him, He's not disappointed.
-
-
-
-What fasting does:
-The benefit of fasting is that you will see clearer and come to revelation of truth. It's about faith rising up and seeing what you are supposed to see. Fasting gets you to live by the spirit.
-
-Fasting suppresses carnality and enables you to live by the spirit.
-
-Fasting keeps you spirit minded. The carnal voice reveals the voice of the flesh.
-
-You want to be renewed by the spirit of your mind. Fasting plays a big part in shifting the focus and control. Therefore, it plays a big role in renewing your mind.
-
-Link:   https://www.youtube.com/watch?v=sQn9WGfFHsA 
-
-## Tood Blansit Notes
-God is calling us as a body to a season of prayer and fasting.
-
-> God is asking us to go to depths of our faith that we've never gone before.
-
-Prayer and fasting is a sign of our desire and hunger to seek God.
-
-> Fasting without prayer is just a really bad diet.
-> Spiritual power begins to flow to us, through us, then out of us. It then connects us to what God is doing.
-> Biblical fasting is to abstain from food.
-> In the sermon on the mount, Jesus starts by talking about 3 spiritual practices: giving, prayer, and fasting.
-> In these 3 things, Jesus places the emphasis on our motives.
-> We do this because God leads us.
-
-* * *
-
-**Matthew 6.16-18**
-16 “When you fast, do not look somber as the hypocrites do, for they disfigure their faces to show others they are fasting. Truly I tell you, they have received their reward in full. 
-17 But when you fast, put oil on your head and wash your face, 
-18 so that it will not be obvious to others that you are fasting, but only to your Father, who is unseen; and your Father, who sees what is done in secret, will reward you.
-
-> "when you fast". It's not \_if\_.
-> Fasting always goes with prayer.
-
-* * *
-
-We too need to live in an atmosphere of prayer, where we are easily moved to pray for different things we encounter.
-
-> The Spirit lives in an atmosphere where prayer is.
-> The Spirit of prayer releases things.
-> Prayer changes our hearts, joining it to the Father.
-
-What is fasting?
-
-> Fasting is voluntary abstainment of food or other appetite to consecrate that time for the purpose of pursuing prayer.
-> God, for this time I'm going to concentrate on You. It adds urgency and persistence to our prayer.
-> Personal discipline tunes us to God's purpose.
-> It's not to manipulate God to action. Instead, fasting aligns us to His will and purposes.
-> When we open our hearts, it moves God to speak. He speaks to thirsty hearts.
-
-> Many times Suffering produces patience, but patience gives purpose to the pressure. —Hosanna Wong
-
-**James 1.2-4**
-2 Consider it pure joy, my brothers and sisters, whenever you face trials of many kinds, 
-3 because you know that the testing of your faith produces perseverance. 
-4 Let perseverance finish its work so that you may be mature and complete, not lacking anything.
-
-> Pure joy is not excitement. We can have it even when we aren't happy.
-
-Spiritual Benefits of Fasting
-
-**1\. Initiate revival and spiritual growth.**  
-**Joel 2.12**
-12 “Even now,” declares the Lord,
-“return to me with all your heart,
-with fasting and weeping and mourning.”
-
-> Personal revival
-
-**2.Receive clear revelation and direction from God.  (Acts 13:2)**
-
-**Acts 13**
-1 Now in the church at Antioch there were prophets and teachers: Barnabas, Simeon called Niger, Lucius of Cyrene, Manaen (who had been brought up with Herod the tetrarch) and Saul. 
-2 While they were worshiping the Lord and fasting, the Holy Spirit said, “Set apart for me Barnabas and Saul for the work to which I have called them.” 
-3 So after they had fasted and prayed, they placed their hands on them and sent them off.
-
-> A lot of us need God's direction but we aren't following God's plan to receive it.
-
-**3\. Free people from spiritual bondages.**
-
-**Mark 9.28-29**
-28 After Jesus had gone indoors, his disciples asked him privately, “Why couldn’t we drive it out?”
-29 He replied, “This kind can come out only by prayer. ”
-
-> God will give us the spiritual power.
-> When we do things His way, it frees Him up to move.
-
-**4\. Push back or loosen the demonic powers over a situation.**
-
-> It fights the battle for your life.
-> Daniel chapter 10
-
-**5\. Navigate the journey ahead with confidence.**
-
-**Ezra 8.21-23**
-21 There, by the Ahava Canal, I proclaimed a fast, so that we might humble ourselves before our God and ask him for a safe journey for us and our children, with all our possessions. 
-22 I was ashamed to ask the king for soldiers and horsemen to protect us from enemies on the road, because we had told the king, “The gracious hand of our God is on everyone who looks to him, but his great anger is against all who forsake him.” 
-23 So we fasted and petitioned our God about this, and he answered our prayer.
-
-**6\. Deepen our intimacy with Jesus.**
-**Matthew 9.14-15**
-14 Then John’s disciples came and asked him, “How is it that we and the Pharisees fast often, but your disciples do not fast?”
-15 Jesus answered, “How can the guests of the bridegroom mourn while he is with them? The time will come when the bridegroom will be taken from them; then they will fast.
+Lastly, you can't fail your fast. If you stop earlier than you wanted or break down and eat something, you didn't fail. It's not about works at the cost of condemnation. You cannot be condemned for breaking a fast. The Lord excited that you are pursuing Him, He's not disappointed.
