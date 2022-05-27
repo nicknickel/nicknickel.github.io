@@ -53,4 +53,5 @@ Doing this routine will not get you to heaven. It won't force your problems to g
 
 Each phase of the program has a dedicated page. Go through each phase alphabetically. This results in a 3 month program. There is also a legend to help understand each of the disciplines and how to practice them. Each schedule indicates a duration for the practice. This is a minimum suggestion. Each practice can go for longer but don't go for less time. Set a timer and push yourself to go the full duration. If you follow the minimum duration, no day will take longer than 30 minutes. If you want a longer duration, double the indicated time for each discipline. Each phase is designed around a 5 day work week and a 2 day weekend where unique and shorter activities occur on the weekend. With that understanding, the schedule can be adjusted to fit weekly calendars that fall outside of this structure.
 
-[Download Spiritual Fitness Plan]({{ .Page.Site.BaseUrl }}/{{ .Get 0 }})
+
+{{< externallink link="/pdfs/Spiritual Fitness Plan.pdf" text="Download Plan" >}}
