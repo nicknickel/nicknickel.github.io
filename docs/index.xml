@@ -2,38 +2,38 @@
 <rss version="2.0" xmlns:atom="http://www.w3.org/2005/Atom">
   <channel>
     <title>This is my blog on Zach Nickel</title>
-    <link>https://nicknickel.github.io/</link>
+    <link>https://localhost:1313/</link>
     <description>Recent content in This is my blog on Zach Nickel</description>
     <generator>Hugo -- gohugo.io</generator>
     <language>en-us</language>
-    <lastBuildDate>Sun, 15 May 2022 00:00:00 +0000</lastBuildDate><atom:link href="https://nicknickel.github.io/index.xml" rel="self" type="application/rss+xml" />
+    <lastBuildDate>Sun, 15 May 2022 00:00:00 +0000</lastBuildDate><atom:link href="https://localhost:1313/index.xml" rel="self" type="application/rss+xml" />
     <item>
       <title>Biblical Fasting</title>
-      <link>https://nicknickel.github.io/posts/fasting/</link>
+      <link>https://localhost:1313/posts/fasting/</link>
       <pubDate>Sun, 15 May 2022 00:00:00 +0000</pubDate>
       
-      <guid>https://nicknickel.github.io/posts/fasting/</guid>
-      <description>Intro If you&amp;rsquo;re reading this, chances are you&amp;rsquo;ve all heard about it, maybe even tried it. Do you remember the last time you did it? Was it last month, or last year? A few years ago?
-The technical definition of dietary fasting is voluntary reduction or elimination of your intake of food for a specific time and purpose. Biblical fasting voluntary abstainment from something for a specific time and purpose. This discussion is about Biblical fasting.</description>
+      <guid>https://localhost:1313/posts/fasting/</guid>
+      <description>Intro If you&amp;rsquo;re reading this, chances are you&amp;rsquo;ve all heard about fasting, maybe even tried it. Do you remember the last time you fasted? Was it last month, or last year? A few years ago?
+The technical definition of dietary fasting is voluntary reduction or elimination of your intake of food for a specific time and purpose. Biblical fasting can be defined as voluntary abstainment from something for a specific time and purpose.</description>
     </item>
     
     <item>
       <title>Fitness isn&#39;t just for your body</title>
-      <link>https://nicknickel.github.io/posts/the-spiritual-fitness-plan/</link>
+      <link>https://localhost:1313/posts/the-spiritual-fitness-plan/</link>
       <pubDate>Sun, 15 May 2022 00:00:00 +0000</pubDate>
       
-      <guid>https://nicknickel.github.io/posts/the-spiritual-fitness-plan/</guid>
-      <description>After all, fitness is just a measure of ability for some purpose. You can work on your fitness as a father, your fitness as a vaccuum salesman, or your measure of ability to dig ditches. Furthermore, the principles that the fitness world has studied, and continue to study, can be extracted and implemented into any fitness measure.
+      <guid>https://localhost:1313/posts/the-spiritual-fitness-plan/</guid>
+      <description>After all, fitness is just a measure of ability for some purpose. You can work on your fitness as a father, your fitness as a vaccuum salesman, or your fitness to dig ditches. Furthermore, the principles that the fitness world has studied, and continue to study, can be extracted and implemented into any fitness measure.
 Key Truth
 You won&amp;rsquo;t get better at something unless you train what you aren&amp;rsquo;t yet good at.</description>
     </item>
     
     <item>
       <title>About</title>
-      <link>https://nicknickel.github.io/about/</link>
+      <link>https://localhost:1313/about/</link>
       <pubDate>Mon, 01 Jan 0001 00:00:00 +0000</pubDate>
       
-      <guid>https://nicknickel.github.io/about/</guid>
+      <guid>https://localhost:1313/about/</guid>
       <description>I created this blog as a place to talk about a christian life program I cooked up. I don&amp;rsquo;t know what all will be put on here but it seems reasonable to me that anything could be added here. I&amp;rsquo;m a guy in the United States who thinks about things and sometimes feels compelled to share them.</description>
     </item>
     

@@ -7,9 +7,9 @@ title: "Biblical Fasting"
 
 ### Intro
 
-If you're reading this, chances are you've all heard about it, maybe even tried it. Do you remember the last time you did it? Was it last month, or last year? A few years ago?
+If you're reading this, chances are you've all heard about fasting, maybe even tried it. Do you remember the last time you fasted? Was it last month, or last year? A few years ago?
 
-The technical definition of _dietary_ fasting is voluntary reduction or elimination of your intake of food for a specific time and purpose. _Biblical_ fasting voluntary abstainment from something for a specific time and purpose. This discussion is about Biblical fasting. The Bible talks about fasting with regard to food, so that's what we'll focus on here. One can fast something other than food but abstaining from food is a very easy way to accomplish the purpose of a fast and is universal to all humanity.
+The technical definition of _dietary_ fasting is voluntary reduction or elimination of your intake of food for a specific time and purpose. _Biblical_ fasting can be defined as voluntary abstainment from something for a specific time and purpose. This discussion is about Biblical fasting. The Bible talks about fasting with regard to food, so that's what we'll focus on here. One can fast something other than food but abstaining from food is a very easy way to accomplish the purpose of a fast and is universal to all humanity.
 
 **The Why**
 
@@ -38,9 +38,9 @@ This isn't an exhaustive list but indicates several reasons why we should fast. 
 
 6. Deepen our intimacy with Jesus. - **Matthew 9.14-15** Then John's disciples came and asked him, "How is it that we and the Pharisees fast often, but your disciples do not fast?" Jesus answered, "How can the guests of the bridegroom mourn while he is with them? The time will come when the bridegroom will be taken from them; then they will fast."
 
-### Why it's in the spiritual fitness plan  {link to plan post}
+### Why it's in the spiritual fitness plan
 
-Jesus is talking in Matthew 6:16 where it says, "*When* you fast, do not look somber as the hypocrites do, for they disfigure their faces to show others they are fasting. Truly I tell you, they have received their reward in full." He goes on to describe more but I wanted to highlight that it doesn't say "if" you fast, it says "when". Fasting is an expectation from Jesus.
+Jesus is talking in Matthew 6:16 where it says (emphasis mine), "*When* you fast, do not look somber as the hypocrites do, for they disfigure their faces to show others they are fasting. Truly I tell you, they have received their reward in full." He goes on to describe more but I wanted to highlight that it doesn't say "if" you fast, it says "when". Fasting is an expectation from Jesus.
 
 It's my belief that Christians should fast often. That is to say, they should fast more than once a year when the pastor calls the whole church to fast. If fasting trains your spirtual muscles to follow God and aligns you with His heart and purposes, the only question to answer is "how bad do you want those things?". My answer to that question is, "as often as possible". If you believe that life on earth is meaningless without God and you don't want to live your life without Him, that is probably your answer too.
 

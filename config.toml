@@ -1,4 +1,5 @@
-baseURL = 'https://nicknickel.github.io/'
+# baseURL = 'https://nicknickel.github.io/'
+baseURL = 'https://localhost:1313/'
 languageCode = 'en-us'
 title = 'Zach Nickel'
 theme = ["github.com/theNewDynamic/gohugo-theme-ananke"]
