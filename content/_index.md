@@ -7,4 +7,3 @@ cascade:
   featured_image: '/images/mountains.jpeg'
 ---
 
-""

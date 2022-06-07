@@ -7,4 +7,4 @@ menu:
     weight: 1
 ---
 
-I created this blog as a place to talk about a christian life program I cooked up. I don't know what all will be put on here but it seems reasonable to me that anything could be added here. I'm a guy in the United States who thinks about things and sometimes feels compelled to share them.
+I'm a guy in the United States who thinks about things and sometimes feels compelled to share them. Thus, a blog.
