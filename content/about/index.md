@@ -7,4 +7,4 @@ menu:
     weight: 1
 ---
 
-I'm a guy in the United States who thinks about things and sometimes feels compelled to share them. Thus, a blog.
+I'm a guy in the United States who thinks about things and sometimes feels compelled to share them. I also like mountains. Thus, a blog.
