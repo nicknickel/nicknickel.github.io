@@ -33,8 +33,9 @@ I won't go into detail on each individual practice in this post but intend to do
   * Intercessory prayer
   * Repentance and Confession
   * Fasting
+  * Volunteering / Service (optional)
 
-The plan is inspired by physical fitness plans. Your muscles start to adapt to a movement after 3 to 6 weeks so typical physical fitness plans change the routine at that interval. Your muscles and nervous system need a rest period after several weeks of abuse. The spiritual fitness plan follows these same principles. There is a 3 week routine followed by a "rest" week. This happens 3 times to complete a 3 month plan. This routine is hard. I didn't complete it the first time I tried. If you aren't used to the practices in the routine, the motivation to continue can be difficult.
+The plan is inspired by physical fitness plans. Your muscles start to adapt to a movement after 3 to 6 weeks so typical physical fitness plans change the routine at that interval. Your muscles and nervous system need a rest period after several weeks of abuse. The spiritual fitness plan follows these same principles. There is a 3 week routine followed by a "rest" week. This happens 3 times to complete a 3 month plan. This can routine is hard. I didn't complete it the first time I tried. If you aren't used to the practices in the routine, the motivation to continue can be difficult.
 
 To make this successful, don't:
   * skip days
@@ -44,14 +45,14 @@ To make this successful, don't:
 
 None of these shortcuts will help your spiritual muscles improve. The plan is designed to include variety so if there are some things you like more than others, you won't get "stuck" doing things you don't like (unless you don't like any of it). If you completed the plan and it was not easy or you couldn't finish but you want to run it again, I recommend waiting a week or two before starting another round.
 
-**The Finish Line**
+**The Bottom Line**
   
 Doing this routine will not get you to heaven. It won't force your problems to go away. It won't make God bless you. It's a tool that will allow God to work on your heart, grow your relationship with Him, increase your capability in the disciplines, and help you discover what you are capable of. Remember that you aren't perfect and God knows this. If you miss a day or stop altogether, God won't be disappointed. He will be proud of your effort and heart to pursue Him.
 
 
 **Particulars On This Printout**
 
-Each phase of the program has a dedicated page. Go through each phase alphabetically. This results in a 3 month program. There is also a legend to help understand each of the disciplines and how to practice them. Each schedule indicates a duration for the practice. This is a minimum suggestion. Each practice can go for longer but don't go for less time. Set a timer and push yourself to go the full duration. If you follow the minimum duration, no day will take longer than 30 minutes. If you want a longer duration, double the indicated time for each discipline. Each phase is designed around a 5 day work week and a 2 day weekend where unique and shorter activities occur on the weekend. With that understanding, the schedule can be adjusted to fit weekly calendars that fall outside of this structure.
+Each phase of the program has a dedicated page. Go through each phase alphabetically (Phase A, Phase B, then Phase C). This results in a 3 month program. There is also a legend to help understand each of the disciplines and how to practice them. Each schedule indicates a duration for the practice. This is a minimum suggestion. Each practice can go for longer but don't go for less time. Set a timer and push yourself to go the full duration. If you follow the minimum duration, no day will take longer than 30 minutes. If you want a longer duration, double the indicated time for each discipline. Each phase is designed around a 5 day work week and a 2 day weekend where unique and shorter activities occur on the weekend. With that understanding, the schedule can be adjusted to fit weekly calendars that fall outside of this structure.
 
 
 {{< externallink link="/pdfs/Spiritual Fitness Plan.pdf" text="Download Plan" >}}
