@@ -8,7 +8,7 @@ draft: true
 
 ### Intro
 
-If you're reading this, chances are you've all heard about fasting, maybe even tried it. Do you remember the last time you fasted? Was it last month, or last year? A few years ago?
+If you're reading this, chances are you've heard about fasting, maybe even tried it. Do you remember the last time you fasted? Was it last month, or last year? A few years ago?
 
 The technical definition of _dietary_ fasting is voluntary reduction or elimination of your intake of food for a specific time and purpose. _Biblical_ fasting can be defined as voluntary abstainment from something for a specific time and purpose. This discussion is about Biblical fasting. The Bible talks about fasting with regard to food, so that's what we'll focus on here. One can fast something other than food but abstaining from food is a very easy way to accomplish the purpose of a fast and is universal to all humanity.
 
