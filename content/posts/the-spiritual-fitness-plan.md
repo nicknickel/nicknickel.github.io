@@ -1,9 +1,11 @@
 ---
+title: "The Spiritual Fitness Plan"
 date: 2022-05-15
-description: "The Spiritual Fitness Plan"
-featured_image: "/images/posts/posts_mountain1.jpg"
-title: "Fitness isn't just for your body"
+draft: false
+categories: ["Religion"]
+description: "Fitness isn't just for your body"
 ---
+
 
 After all, fitness is just a measure of ability for some purpose. You can work on your fitness as a father, your fitness as a vaccuum salesman, or your fitness to dig ditches. Furthermore, the principles that the physical fitness world has studied, and continue to study, can be extracted and implemented into any fitness measure.
 

@@ -1,9 +1,9 @@
 ---
-date: 2022-05-15
-description: "What it is and why it's important"
-featured_image: "/images/posts/posts_mountain2.jpg"
 title: "Biblical Fasting"
+date: 2022-05-15
 draft: true
+categories: ["Religion"]
+description: "What it is and why it's important"
 ---
 
 ### Intro
